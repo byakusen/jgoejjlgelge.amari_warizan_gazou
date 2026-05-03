@@ -1,0 +1,1 @@
+# jgoejjlgelge.amari_warizan_gazou
